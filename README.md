@@ -1,4 +1,4 @@
-### You can Get over anything if you try <img src="https://pin.it/28TmHXb"/>
+### You can Get over anything if you try 
 
 <!--
 **YoungAkira/YoungAkira** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
